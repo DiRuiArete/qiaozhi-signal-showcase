@@ -64,5 +64,4 @@
 
 ## 联系
 
-- 邮箱:contact@qiaozhi.app
-- 运营主体:侨知出海(成都)信息科技有限公司 · 蜀ICP备2026030863号-2X
+diruiarete@gmail.com
